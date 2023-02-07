@@ -1,1 +1,1 @@
-# Identifying patterns and trends in international football
+Identifying patterns and trends in international football
